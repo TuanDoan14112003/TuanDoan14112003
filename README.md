@@ -2,7 +2,6 @@
 A software development major student with high-academic results seeking internship opportunities to apply practical skills. Proficient in various programming languages and backend technologies. Able to quickly adapt to new working environments and learn the latest technologies and skills.
 
 ### Contact
-Phone: 0481 251 990
 
 Email: tuandoan14112003@gmail.com
 
